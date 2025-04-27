@@ -1,6 +1,5 @@
 # Claim-Today-Brawl-Stars-Gems-Free-in-2025
-# Gratis-Brawl-Stars-Gift-Card-Gems-Codes-in-2025-Latest-and-Working-Tool-by-Redeemcodepro
-# 🎮 Brawl Stars Resource Guide
+# Brawl Stars Free Gems Guide
 
 **Safe methods** to earn gems through legitimate rewards:
 
